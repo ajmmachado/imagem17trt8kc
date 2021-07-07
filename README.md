@@ -1,1 +1,0 @@
-# imagem17trt8kc
